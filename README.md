@@ -12,5 +12,5 @@ saya tertarik mengulik android development, mohon dapat dimaafkan apabila belum 
 
 _terimakasih atas perhatiannya semoga selalu dalam keadaan sehat dan bahagia_
 
-![cat show love](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExaGJ6Mng5Mmt4MjlvbW1oM29wN3IybjQ2ZjhzYTdlbXlmbzZteDhibSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/NfzERYyiWcXU4/giphy.gif)
-![programmer cat](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3d2R5YXM0enE0eDY3dml3cXhkNDhoMHNsdGc3ZmJtNzJ5a3JrdXh1ZSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/lJNoBCvQYp7nq/giphy.gif)
+![excited duck](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdHJqbW81ZW0weDY5Y2Q5aHBrbTM3NHhwd3cxdjE5am1pMzd6dHQ5diZlcD12MV9naWZzX3NlYXJjaCZjdD1n/WUuypTBVGuwhi/giphy.gif)
+![happy duck](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdHJqbW81ZW0weDY5Y2Q5aHBrbTM3NHhwd3cxdjE5am1pMzd6dHQ5diZlcD12MV9naWZzX3NlYXJjaCZjdD1n/krewXUB6LBja/giphy.gif)
